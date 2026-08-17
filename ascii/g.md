@@ -8,5 +8,5 @@
  \____|
 ```
 
-G is the C that grew a little bold,
+G is built on C's own outline and is no less bold,
 it turns a bar inward and takes hold.
