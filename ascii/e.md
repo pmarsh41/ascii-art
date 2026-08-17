@@ -8,5 +8,5 @@
 |_____|
 ```
 
-E lays three shelves along one upright spine,
+Two full-width bars and a short middle arm ride one upright spine,
 the busiest letter in every written line.
