@@ -9,4 +9,4 @@
 ```
 
 J hangs a hook at the foot of its post,
-and cradles the letters it likes the most.
+its stem stays to the right, and the curl swings left the most.
