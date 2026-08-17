@@ -9,4 +9,4 @@
 ```
 
 L raises a post where the floor extends,
-one square right angle is where it ends.
+one square right angle is where it bends.
