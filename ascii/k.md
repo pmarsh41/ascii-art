@@ -9,4 +9,4 @@
 ```
 
 K plants a post and throws two strokes apart,
-a knock so hard it kicks the word to start.
+arm at the tick, leg at the dot, they start.
