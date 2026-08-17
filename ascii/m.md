@@ -9,4 +9,4 @@
 ```
 
 M keeps a hum behind closed lips, the quietest of sounds,
-two pillars with a folded roof to mark its narrow bounds.
+two pillars with a folded roof that spans the broadest grounds.
