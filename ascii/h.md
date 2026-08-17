@@ -9,4 +9,4 @@
 ```
 
 H stands two posts with a plank laid between,
-the plainest bridge that a letter has been.
+both posts unbroken cap to foot, and only midway has the crossing been.
