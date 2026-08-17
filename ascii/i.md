@@ -9,4 +9,4 @@
 ```
 
 I stands alone with a bar at either end,
-a single upright that will never bend.
+five columns wide, the narrowest capital, with no room to bend.
