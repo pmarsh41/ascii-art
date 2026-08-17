@@ -9,4 +9,4 @@
 ```
 
 R carries a closed bowl at the top of its spine,
-then drops a slant leg to the right of that line.
+an angle bracket shuts the bowl and springs the leg from that line.
