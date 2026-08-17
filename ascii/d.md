@@ -9,4 +9,4 @@
 ```
 
 D sets a straight spine and bows the other side,
-a sail pulled taut with all the wind inside.
+a sail pulled taut against a running tide.
